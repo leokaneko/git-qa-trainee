@@ -1,20 +1,6 @@
 ## Wellington Avelino dos Santos
+## Leonardo Kaneko
 ## Marcio Lemos
 ## Carla Cristine Crude dos Santos
 ## Cristiane dos Santos Souza
-
-
-e
-esteteste
-
-Bruno dos Santos Vieira
-
-
-
-
-
-
-
-teste
-
-teste
+## Bruno dos Santos Vieira
